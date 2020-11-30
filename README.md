@@ -5,7 +5,7 @@
 
 
 ### The painting of this post is called A Calm at a Mediterranean Port
-### and was painted by Claude-Joseph Vernet (1770) oil on canvas, 113 × 145.7 cm
+### and was painted by Claude-Joseph Vernet in 1770.  Oil on canvas, 113 × 145.7 cm
 
 ---------
 
