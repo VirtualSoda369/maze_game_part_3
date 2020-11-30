@@ -4,7 +4,7 @@
 ![alt_text](https://github.com/VirtualSoda369/maze_game_part_3/blob/main/post/portada_final.jpg?raw=true "title")
 
 
-### The painting of this post is called A Calm at a Mediterranean Port (1770)
+### The painting of this post is called A Calm at a Mediterranean Port
 ### and was painted by Claude-Joseph Vernet (1770) oil on canvas, 113 × 145.7 cm
 
 ---------
